@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @l-osborne4
+- 👀 I’m interested in programming websites, discord bots and minecraft servers.
+- 🌱 I’m currently learning how to be super bored at school...
+- 💞️ I’m looking to collaborate on absolutly nothing, I do everything alone.
+- 📫 How to reach me you don't... Just kidding, you can reach me at my email.
